@@ -1,7 +1,8 @@
 ---
+title: Student Transport Riders Association questions Metro Tunnel opening plans
 lastUpdated: 2025-10-09
 ---
-# Student Transport Riders Association questions Metro Tunnel opening plans
+
 The Student Transport Riders Association – the voice of Victoria's student commuters – praises the opening of the Melbourne Metro Tunnel on schedule but holds reservations regarding the staged opening strategy and questions details around how it will interact with the rest of the suburban network.
 
 The Victorian Government announced today that the Metro Tunnel would open in early December of 2025, beginning with 'The Summer Start', a period of limited operation in which the tunnel will run with 20 minute frequencies alongside existing services on the Sunbury, Cranbourne, and Pakenham lines through the City Loop.
@@ -24,8 +25,8 @@ Additionally, the STRA is calling for clarification from the State Government on
 
 "It's essential that students at Victoria University's Footscray and Werribee campuses travelling from the Eastern suburbs are able to make the same or similar journeys as they are currently able to with the Frankston line's connection to Werribee and Williamstown."
 
-*You can contact STRA at:
+\*You can contact STRA at:
 Email: media@stra.org.au
-Phone: (03) 8400 0963*
+Phone: (03) 8400 0963\*
 
-*Available Monday to Friday, 9am-5pm, subject to volunteer availability.*
+_Available Monday to Friday, 9am-5pm, subject to volunteer availability._
